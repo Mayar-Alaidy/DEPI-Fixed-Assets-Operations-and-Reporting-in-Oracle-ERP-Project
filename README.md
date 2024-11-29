@@ -1,0 +1,1 @@
+# DEPI-Fixed-Assets-Operations-and-Reporting-in-Oracle-ERP-Project
